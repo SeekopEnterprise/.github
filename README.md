@@ -1,1 +1,1 @@
-# Repositorio de informacion publica
+# Repositorio de informacion pública
